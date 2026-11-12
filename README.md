@@ -42,7 +42,7 @@ A project concept focused on energy conservation and reducing energy consumption
 🤝 Connect With Me
 
 - 💼 GitHub: "krishna-k-sah" (https://github.com/krishna-k-sah)
-- 💼 LinkedIn: [Add Your LinkedIn Profile Link Here]
+- 💼 LinkedIn: [https://www.linkedin.com/in/krishna-kumar-shah-kanu-0a0548432?utm_source=share_via&utm_content=profile&utm_medium=member_android]
 
 ---
 
